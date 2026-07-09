@@ -1,4 +1,4 @@
-# Welocem to my page :3
+# Welcome to my page :3
  
 **■Student, 𝐏𝐫𝐚𝐠𝐮𝐞, 𝐂𝐙 ■**
 
